@@ -1,4 +1,4 @@
-
+advanced ultimate mining tycoon Script is the best ultimate mining tycoon Script, featuring no cooldown and undetectable. Safe and powerful for all
 
 
 
